@@ -1,2 +1,2 @@
 # Admonit
-My on design fresh goods business
+My own design digital fresh goods business
