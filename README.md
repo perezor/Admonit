@@ -1,3 +1,3 @@
 # Admonit
-My own design digital fresh goods business: 
+My own design fresh goods digital business: 
 https://admon-it.co.il/
